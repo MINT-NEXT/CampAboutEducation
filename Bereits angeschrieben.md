@@ -6,3 +6,4 @@
 * GOLDBERG[WERK]: event@grm-locations.com am 30.05.2017
 * FreiRaum Stuttgart: anfrage@freiRaum-in-stuttgart.de am 30.05.2017
 * Klett verlag: b.pock@klett-mint.de am 30.05.2017
+* Hdm-Stuttgart: presse@hdm-stuttgart.de am 30.05.2017
