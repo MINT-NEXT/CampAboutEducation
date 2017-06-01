@@ -4,6 +4,6 @@
 * Audiforum Neckarsulm: audiforum.neckarsulm@audi.de am 30.05.2017
 * CinemaxX Stuttgart: fiylo@red-carpet-event.de am 30.05.2017
 * GOLDBERG[WERK]: event@grm-locations.com am 30.05.2017
-* FreiRaum Stuttgart: anfrage@freiRaum-in-stuttgart.de am 30.05.2017
+* FreiRaum Stuttgart: anfrage@freiRaum-in-stuttgart.de am 30.05.2017 -> Telefoniert am 01.06. => angebot ca. am Dienstag 
 * Klett verlag: b.pock@klett-mint.de am 30.05.2017
 * Hdm-Stuttgart: presse@hdm-stuttgart.de am 30.05.2017
